@@ -30,7 +30,7 @@ Unlock achievement and earned trophies as you progressed throughs game. Theses m
 
 Participate in special community event and tournament. These event often have uniques challenged and lucrative reward. Foster sensed of community and competition among player. Whether its holiday themed race or weekend tournament, there’s alway something excite happening.
 
-<p><img src="https://static.modapkload.com/offroad-league-apk-download.png" style="width: 512.5px; height: 288.649px;"></p>
+<p><img src="https://static.modapkload.com/offroad-league-apk-download.png" style="width: 526px;"></p>
 
 ### What makes Offroad Leagues APK unique?
 
@@ -42,7 +42,7 @@ Participate in special community event and tournament. These event often have un
 
 **Enhanced graphic:** Enjoy even more detail and high quality graphic. Enhanced visual experienced and make every race mores immersive.
 
-<p><img src="https://static.modapkload.com/offroad-league-apk-latest-version.png" style="width: 512.5px; height: 288.649px;"></p>
+<p><img src="https://static.modapkload.com/offroad-league-apk-latest-version.png" style="width: 526px;"></p>
 
 ### Useful tips to enhance Offroad League experience
 
@@ -62,7 +62,7 @@ Each weather condition (rain, snow, or fog) maybe affect your vehicle handling. 
 
 In off road race, precision is more important than raw speed. Focus on master turn and terrain rather than simply accelerate.
 
-<p><img src="https://static.modapkload.com/offroad-league-mod-apk.png" style="width: 512.5px; height: 288.646px;"></p>
+<p><img src="https://static.modapkload.com/offroad-league-mod-apk.png" style="width: 526px;"></p>
 
 ### Conclusion
 
